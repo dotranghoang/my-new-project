@@ -1,0 +1,1 @@
+Xin chao , hom nay la buoi hoc dau tien va toi chang hieu gi ca XD
